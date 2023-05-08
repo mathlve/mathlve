@@ -1,6 +1,6 @@
-### Olá!
+### Seja muito bem vindo ao meu perfil!! 🎸
 
--Meu nome é Matheus
+-Meu nome é Matheus, mas você pode me chamar de math!
 
 -Tenho 17 anos
 
